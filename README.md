@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **abdallahalkhaled8@gmail.com**
 
-- 📄 Know about my experiences [Abdallah-Alkhaled-CV](https://docs.google.com/document/d/1YnRwLQlh_FSzPOuM6hen6sYCVWGcQ7ws/edit?usp=drive_link&ouid=107831959767087237450&rtpof=true&sd=true)
+- 📄 Know about my experiences [Abdallah-Alkhaled-CV](https://drive.google.com/file/d/1SJNKxU68QuGsJOld7UJgAhqlk_JaLrgG/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
